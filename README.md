@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data analytics
 - 💞️ I’m looking to collaborate on ... just ask
 - 📫 How to reach me - galaxywildstar@gmail.com
-- 😄 Pronouns: She & They
+- 💅🏽 Pronouns: She & They
 - ⚡ Fun fact: I make music and juggle c:
 
 <!---
