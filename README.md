@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Luna-Agora
 - 👀 I’m interested in music, cats, & coffee!
-- 🌱 I’m currently working on my capstone for nashville software school
+- 🌱 I’m currently working on data analytics job!
 - 📫 How to reach me - galaxywildstar@gmail.com
 - 💅🏽 Pronouns: She & They
 
