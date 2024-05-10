@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Luna-Agora
 - 👀 I’m interested in music, cats, & coffee!
-- 🌱 I’m currently working on data analytics job!
+- 🌱 I’m currently working on finding a data analytics role!
 - 📫 How to reach me - galaxywildstar@gmail.com
 - 💅🏽 Pronouns: She & They
 
